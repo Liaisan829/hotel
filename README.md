@@ -4,7 +4,7 @@
 
 ### Видео с защитой проекта:
 
-
+https://www.youtube.com/watch?v=kLZVfnev7Uo
 
 ### Папка на Google Drive
 https://drive.google.com/drive/folders/1ZooGFY6UlGJWq3L7jNWnp1IQyC_pAsr5
